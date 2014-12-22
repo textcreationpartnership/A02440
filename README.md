@@ -35,24 +35,30 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-VVork for chimny-sweepers: or A warning for tabacconists Describing the pernicious vse of tabacco, n
+
+1. To the Reader.
+NOt the desire of any priuate game,Nor 〈◊〉 motions of a Carping braine,Nor for reward from some 〈◊〉 FOR the dislike that I haue conceiued in the vse and practise
+of Tabacco, I take it to be grounded o
 #####Body#####
 
-1. The first Reason.
+1. ¶A Warning for
+Tabcconists.
 
-1. The second Reason.
+    _ The first Reason.
 
-1. The third Reason.
+    _ The second Reason.
 
-1. The fourth Reason.
+    _ The third Reason.
 
-1. The fift Reason.
+    _ The fourth Reason.
 
-1. The sixt Reason.
+    _ The fift Reason.
 
-1. The seuenth Reason.
+    _ The sixt Reason.
 
-1. The eight and last Reason.
+    _ The seuenth Reason.
+
+    _ The eight and last Reason.
 
 **Types of content**
 
